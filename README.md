@@ -1,1 +1,0 @@
-# Default-Payments-of-Credit-Card
